@@ -122,7 +122,7 @@ Yahoo Finance Historical Market Data
 
 ## YouTube Video Link
 
-https://
+https://youtu.be/d_oPlH4oGWc
 
 ---
 
